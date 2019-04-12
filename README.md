@@ -1,3 +1,1 @@
-# ashleyshu.github.io
-
-www.ashleyshu.me
+In construction...
