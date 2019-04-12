@@ -1,3 +1,3 @@
 # ashleyshu.github.io
 
-ashleyshu.me
+www.ashleyshu.me
